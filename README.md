@@ -1,6 +1,8 @@
 PusingDotCom
 ============
 
-Direktori buat yang lagi posting
+Direktori buat yang lagi pusing...
+
 Anda bisa menambahkan apa saja. Mau tulisan mau gambar mau file apa aja deh, pokoknya tempat buat ngilangin pusing.
+
 Moga aja nih tempat bisa bikin hati ceria halah :p
